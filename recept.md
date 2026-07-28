@@ -311,3 +311,67 @@ Fyllning:
 Lägg hallonen i botten av en pajform, ha på kardemumman. Hacka chokladen fint och fördela den jämnt över bären. Strö över smulorna. Grädda i 200 grader i cirka 30 minuter eller tills pajen fått fin färg. Servera en stor kula äkta vaniljglass till.
 
 [Länk till receptet online](https://www.linneasskafferi.se/2011/04/14/hallonpaj-med-vit-choklad/)
+
+## Vinbärsgele
+
+### Ingredienser
+
+- 1 l lite omogna vinbär (1 l motsvarar 500 g)
+- 2 dl vatten
+- 9 dl strösocker per liter avrunnen saft (9 dl motsvarar ca 800 g)
+
+### Gör så här
+
+1. Bra att veta om kokning av marmelad. Lägg en tallrik i frysen. Skölj bären, lägg bär (behöver inte repas från stjälkarna) och vatten i en kastrull, krossa bären med en slev. Koka upp och låt koka ca 10 minuter (krossa bären någon gång under koktiden).
+
+2. Lägg en silduk eller tunn kökshandduk i ett durkslag. Häll den kokta massan i durkslaget låt stå att självrinna minst 1 timme. (Tror inte alls att det tar så lång tid i en sildukt)
+
+3. Mät mängden på den avrunna saften och häll den i en kastrull. Koka upp saften och låt den koka några minuter. Tillsätt sockret under omrörning. Låt koka ytterligare 5-10 minuter utan omrörning. Skumma av skummet med en hålslev.
+
+4. För att veta om gelén är klar, gör ett geléprov. Lägg lite av den varma saften på tallriken som legat i frysen. Låt saften svalna en kort stund i kylen, dra därefter en sked genom saften. Rinner den inte ihop är gelén klar (rinner den ihop fortsätt att koka ytterligare några minuter).
+
+5. Häll upp den varma gelén på små väl rengjorda, steriliserade och varma burkar och sätt på locket. Det kan ta någon dag innan den stelnar helt.
+
+[Länk till receptet online](https://www.ica.se/recept/svartvinbarsgele-729366/)
+
+## Krusbärsmarmelad
+
+### Ingredienser
+
+- 1 kg krusbär
+- 1 dl vatten
+- 1 ekologisk citron
+- 800-1.000 g socker
+
+1. Skölj och rensa körsbären. Ställ in ett par små fat i frysen.
+2. Lägg dem i en tjockbottnad kastrull eller gryta och slå på vattnet.
+3. Koka upp på medelvärme och låt bären sjuda tills de börjar släppa vätska.
+4. Pressa i saften av citronen.
+5. Sänk värmen och rör ner sockret. Det ska inte koka förrän allt socker är löst för annars riskerar man att sockret kristalliseras och man får klumpar i marmeladen.
+6. Koka kraftigt i cirka 10 minuter. Skumma hela tiden. Överkurs är att pensla på kanterna med vatten för att få bort eventuella sockerkristaller som stänkt upp och riskerar bli hårda och faller ner i marmeladen.
+7. När marmeladen når 107-108 grader i temperatur är den klar. När den tjocknat ordentligt kan man också lägga en klick på ett av faten som stått i frysen och efter någon minut drar man fingret genom marmeladen. Om den inte rinner ihop igen är den klar.
+8. Fyll upp på väl rengjorda burkar som gärna sköljts med kokande vatten eller stått i en het ugn några minuter.
+
+Marmeladen klarar sig minst några månader om den står mörkt och svalt. I frysen står den sig en mindre evighet.
+
+[Länk till receptet online](https://matgeek.se/2014/07/29/klassisk-krusbarsmarmelad/)
+
+## Röd vinbärssaft i saftmaja
+
+### Ingredienser
+
+- 1 kg röda vinbär (ca 2 liter)
+- 300 - 400 g socker
+
+### Gör så här
+
+1. Skölj bären i durkslag och ta bort dåliga bär och alla blad. Klasarna gör inget att de är kvar.  
+2. Väg de röda vinbären och häll de sedan i en saftmaja.
+3. Häll på socker enligt proportionerna ovan ovanpå bären. Rör eventuellt om så att sockret och de röda vinbären blandas något.
+4. Koka de röda vinbären i saftmajan tills de vattnats ur helt. Detta brukar ta upp till en timme beroende på hur mogna bären varit och mängden saft som kokas. Tappa gärna ur saften en gång och håll tillbaka den på bären för att blanda sockret och få en jämnare kvalitet mellan flaskorna.
+5. Under tiden röda vinbärssaften kokas så förbereds flaskorna som skall vara hela och rena. Ta av korkarna på flaskorna och koka dess i vattenbad. Flaskorna läggs i ugnen på 100 grader tills de är torra.
+6. När saften kokat färdigt så hälls den via pipen i saftmajan ner i de varma flaskorna. Använd gärna en sil mellan tratten och pipen från saftmajan för att samla upp eventuella kärnor som åkt med ner i saften. Detta påverkar inte smaken på saften, men då blir röda vinbärssaften snyggare i flaskorna. Häll saften ändå upp för att minska mängden luft i flaskorna vilket gör att saften håller sig längre.
+7. Förslut flaskorna på en gång och låt de sakta svalna i rumstemperatur.
+8. Förvara flaskorna svalt, gärna i en kallkällare eller kylskåp. 
+
+[Länk till receptet online](https://www.letarecept.se/recept/rod-vinbarssaft-i-saftmaja--41.html)
