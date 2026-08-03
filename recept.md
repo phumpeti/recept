@@ -375,3 +375,52 @@ Marmeladen klarar sig minst några månader om den står mörkt och svalt. I fry
 8. Förvara flaskorna svalt, gärna i en kallkällare eller kylskåp. 
 
 [Länk till receptet online](https://www.letarecept.se/recept/rod-vinbarssaft-i-saftmaja--41.html)
+
+
+## Örtagårdssallad
+
+### Ingredienser
+
+- Kokt kyld pasta till 4 pers.
+- Ca 400g Kassler.
+- Grönsaker (välj det du gillar).
+- 2 dl Gräddfil
+- 1 dl Crème Fraiche 
+- 1 påse Knorr Örtagård kryddmix
+
+### Gör så här
+
+1. Skär kasslern i tärningar eller strimlor. 
+2. Hacka grönsakerna i lagom stora bitar. 
+3. Blanda kasslern, grönsaker & pastan i en stor skål.
+4. Rör ihop gräddfil, crème fraiche och kryddmixen tills det blir en jämn röra. 
+5. Hälls såsen över pastasalladen och rör om ordentligt. 
+
+Servera gärna med Eldorado Salladsost smulad över.
+
+## Sallad med päron, fetaost, lufttorkad skinka och torkade tranbär.
+
+### Ingredienser
+
+- Salladsmix.
+- Päron (Ersätt gärna med nektariner).
+- Lufttorkad skinka (typ Prosciutto).
+- Fetaost.
+- Torkade Tranbär.
+- Mandlar.
+- Olivolja.
+
+Dressing:
+
+- 1 dl Olivolja
+- 1/3 dl Rosévinäger.
+- 2 msk Dijonsenap
+- Ca 10 droppar Worcestershiresås.
+- 1 stor finriven vitlöksklyfta.
+- 2 krm Salladskrydda.
+- Salt & Peppar. 
+
+### Gör så här 
+
+1. Häll upp alla ingredienserna till dressingen i en flaska eller skål och skaka eller vispa ihop och smaka av med salt och peppar.
+2. Hacka upp övriga ingredienser i lämpliga bitar och blanda ihop och häll sedan på lagom mycket dressing. 
