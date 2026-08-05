@@ -445,7 +445,7 @@ Dekoration:
 1. Smula jästen i en bunke och rör ut med vattnet.
 2. Tillsätt mjöl, salt och olivolja och arbeta cirka 10 minuter i maskin eller för hand tills du har en elastisk smet. Den ska vara riktigt kladdig.
 3. Täck bunken med plastfilm och låt jäsa en timme.
-4. Häll 2-3 msk olivolja i en form på ca 25x30 cm och häll ut degen i formen. Vänd degen 4-5 gånger i oljan och platta sedan ut så den täcker botten. Täck med plastfilm och låt jäsa till dubbel storlek 1-1,5 timme.
+4. Häll 2-3 msk olivolja i en form på ca 25x30 cm med bakplåtspapper i och häll ut degen i formen. Vänd degen 4-5 gånger i oljan och platta sedan ut så den täcker botten. Täck med plastfilm och låt jäsa till dubbel storlek 1-1,5 timme.
 5. Sätt ugnen på 225 grader.
 6. Häll lite olja på toppen av degen, använd fingertopparna och tryck ner i degen ett par gånger så det blir cirka 20 hål. Tryck ner några rosmarinkvistar i hålen och strö över flingsalt.
-7. Baka mitt i ugnen i 20 minuter. Servera gärna varmt med lite olivolja.
+7. Baka mitt i ugnen i 16-18 minuter. Servera gärna varmt med lite olivolja.
