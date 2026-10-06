@@ -11,12 +11,14 @@
 - [Pasta med brynt smör och kronärtskocka](#pasta-med-brynt-smor-och-kronartskocka)
 - [Rostad majs- och kycklingplåt](#rostad-majs--och-kycklingplat)
 - [Varmrökt Laxsallad](#varmrokt-laxsallad)
+- [Köttgryta med grädde och timjan](#köttgryta-med-grädde-och-timjan)
 
 ### Smörgåsar
 - [Rostbiffsmacka med smetana honung och pickels.](#rostbiffsmacka-med-smetana-honung-och-pickels)
 
 ### Tillbehör & såser
 - [3-min Bearnaise](#3-min-bearnaise)
+- [Gräddsås till köttbullar] (#gräddsås-till-köttbullar)
 - [Coleslaw](#coleslaw)
 - [Gammaldags Salladsdressing av Åke Söderqvist](#gammaldags-salladsdressing-av-ake-soderqvist)
 
@@ -191,6 +193,38 @@ Rågbrödskrisp
 6. Ringla över olivolja, salta och blanda ihop.
 7. Blanda ingredienserna till sallad och garnera med färska dillkvistar.
 
+
+## Köttgryta med grädde och timjan
+
+### Ingredienser 
+
+
+- 300 g grytbitar av nöt
+- ½ gul lök
+- ½ msk smör
+- salt och peppar
+- 1 msk tomatpuré
+- 3 dl vatten
+- 1 köttbuljongtärning
+- 1 tsk kinesisk soja
+- 1 lagerblad
+- 1 tsk torkad timjan
+- ¾ dl vispgrädde
+- 1 msk vetemjöl, till redning
+
+
+### Gör så här
+
+
+1. Bryn kött och grovhackad lök i smör i en stekpanna, salta och peppra under stekningen. Lägg över det i en gryta. Tillsätt tomatpuré, vatten, buljongtärning, soja, lagerblad och timjan till köttet i grytan.
+2. Låt grytan sjuda under lock tills köttet är mört, ca 30-60 minuter. Tiden kan variera beroende på storlek på grytbitarna samt vilken styckningsdetalj som använts.
+3. Häll på grädden, red av med mjöl utrört i lite vatten och sjud 3–5 minuter. Smaka av med salt och peppar.
+4. Koka potatisen i saltat vatten tills den är mjuk. Koka broccolin mjuk i saltat vatten.
+5. Krossa potatisen grovt och servera den och broccolin till grytan. Garnera gärna med färsk timjan. 
+
+
+[Länk till receptet online](https://recept.se/recept/kottgryta-med-gradde-och-timjan)
+
 ## Smörgåsar
 
 ## Rostbiffsmacka med smetana honung och pickels.
@@ -227,6 +261,31 @@ Rågbrödskrisp
 1. Tillsätt samtliga ingredienser i en hög och smal mixerskål (helst inte större diameter än 9 cm).
 2. Ställ stavmixern i botten på skålen och mixa tills det understa lagret blir vitt och krämigt. Lyft mixern lite i taget, nerifrån och upp och mixa tills allt fått samma konsistens.
 3. Smaka av med eventuellt mer vinäger och kryddor. Eller varför inte gå loss och tillsätt chili, tryffelolja, vitlök etc.
+
+
+## Gräddsås till köttbullar
+
+### Ingredienser
+
+- Svenskt Smör från Arla®	50 g
+- Vetemjöl 1 msk
+- Arla Ko® Vispgrädde 3 dl
+- Örtkryddor, t ex torkad timjan 1 tsk
+- Köttbuljong ½ tärning
+- Japansk soja 1 msk
+- Ev. madeira 1 msk
+- Worcestershiresås 2 tsk
+- Salt och peppar
+	
+### Gör så här 
+
+1. Smält smör i en kastrull och fortsätt fräsa under ständig omrörning tills det är gyllenbrunt och doftar nötigt.
+ 
+2. Vispa ner mjöl och lite av grädden till en tjock stuvning. Tillsätt resterande grädde, lite i taget, under vispning. Tillsätt örtkryddor (och ev steksky från köttbullarna).
+ 
+3. Låt sjuda på låg värme minst 10 min men gärna längre. Rör då och då. Tillsätt smulad buljongtärning, soja, madeira och worcestersås. Låt koka ytterligare 5 min. Smaka av med salt och peppar. 
+
+
 
 ## Coleslaw
 
