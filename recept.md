@@ -43,7 +43,7 @@
 3. After the last fold, let the dough rest for another 2 h.
 
 ### Dela degen
-Lightly flour your work surface and gently transfer the dough onto it. 
+Lightly flour your work surface and gently transfer the dough onto it.
 
 ### Slutjäsning
 Divide into 4-6 equal pieces, cover, and let rest for 1,5-2 hours for the final proof.
@@ -63,14 +63,47 @@ Bake the ciabatta in a preheated oven at 220°C for 10 minutes with steam, then 
 - Olive oil 1 tbsp
 
 ### Gör så här
-Mix all ingredients and let rest for 40 min. 
+Mix all ingredients and let rest for 40 min.
 
 ### Bakning
 Bake in dutch oven (240 C)  with lid on for 30 min and then without for 10
 
 ## Huvudrätter
 
-## Fläderglazed Kyckling med smörstekt spetskål & örtig ostcrème 
+
+## Köttfärsgratäng med pasta
+
+Portioner4–5 portioner
+Tid: ca 30 min
+
+### Ingredienser
+xKöttfärssås
+
+- 500 g köttfärs, t.ex. nötfärs
+- 3 msk kalvfond- 2 msktomatpuré
+- 1 tsk torkad timjan
+- 1 tsk torkad rosmarin- 1 dlvatten
+- 3 dl grädde eller havregrädde
+- salt och peppar
+
+Gratäng
+
+- 300 g pasta
+- 1 dl grädde eller havregrädde
+- 3 dl riven ost, gärna smakrik som prästost eller västerbottensost
+
+### Gör så här
+
+1. Sätt ugnen på 225 grader. Stek köttfärsen. Tillsätt kalvfond, tomatpuré, timjan, rosmarin, salt och peppar. Häll i vattnet och låt det puttra bort under omrörning.
+2. Häll i 3 dl grädde och låt puttra i ca 5–7 minuter. Koka samtidigt pastan enligt anvisningarna på förpackningen, men ca 1 minut kortare.
+3. Blanda köttfärssås och pasta i en ugnsfast form. Häll över 1 dl grädde och toppa med osten.
+4. Grädda i ugnen i ca 15 minuter, tills osten har smält och fått färg.
+
+
+[Länk till receptet online](https://metromode.se/mat-och-dryck/kottfarsgratang-med-pasta-varldens-enklaste-pa-30-minuter/)
+
+
+## Fläderglazed Kyckling med smörstekt spetskål & örtig ostcrème
 
 ### Ingredienser
 Kyckling
@@ -89,7 +122,7 @@ Smörstekt spetskål
 - 1 msk citronsaft
 - 1/2 kruka färsk timjan
 - flingsalt & svartpeppar
-  
+
   Ostcremé
 - 150 g färskost
 - 1dl crème fraiche
@@ -98,9 +131,9 @@ Smörstekt spetskål
 ### Gör så här
 1. Stek kycklingfiléer i smör, ca 5 min per sida tills de är gyllen och genomstekta.
 2. Sänk värmen, till flädersaft, honung, timjan och citronskal. Låt glasera under lock 1-2 min till det blir glansigt och lätt karamelliserat.
-3. Strimla spetskål tunt. Stek i smör och olivolja tills mjuk och gyllene, ca 5-7 min. Pressa över citronsaft och toppa med timjan, salt och peppar. 
-4. Rör ihop ostcrèmen: färskost, crème fraiche, salt och peppar. Vispa eller rör fluffigt. 
-5. Servera: Spetskål i botten, fläderkyckling ovanpå, och en klick ostcrème överst. 
+3. Strimla spetskål tunt. Stek i smör och olivolja tills mjuk och gyllene, ca 5-7 min. Pressa över citronsaft och toppa med timjan, salt och peppar.
+4. Rör ihop ostcrèmen: färskost, crème fraiche, salt och peppar. Vispa eller rör fluffigt.
+5. Servera: Spetskål i botten, fläderkyckling ovanpå, och en klick ostcrème överst.
 
 Coleslaw
 Betyg 4.4 av 5.
@@ -130,7 +163,7 @@ Buffé nr 6, 1999
 
 ### Gör så här
 1. Bryn smöret, ta från värmen och tillsätt salvian. Häll av och skär kronärtskockorna i mindre bitar.
-2. Koka pasta enligt anvisningen på förpackningen och häll av. Blanda pastan med brynta smöret, kronärtskocka citronskal och parmesan. 
+2. Koka pasta enligt anvisningen på förpackningen och häll av. Blanda pastan med brynta smöret, kronärtskocka citronskal och parmesan.
 
 [Länk till receptet online](https://www.ica.se/recept/pasta-med-brynt-smor-och-kronartskocka-725858/)
 
@@ -154,11 +187,11 @@ Såsen:
 - salt & peppar
 
 ### Gör så här
-1. Sätt ugnen på 180 grader varmluft. 
+1. Sätt ugnen på 180 grader varmluft.
 2. Lägg ner kycklingen i en bunka och häll på olivolja, soja och sweet chilisås. Låt marinera.
 3. Dela potatisarna, skär löken i klyftor och skär av majsen. Ös upp på en plåt och toppa med oregano.
-4. Ringla över olivolja, salta och peppra och blanda runt ordentligt. 
-5. Lägg på kycklingen och skicka in i ugnen i ca 20 min. 
+4. Ringla över olivolja, salta och peppra och blanda runt ordentligt.
+5. Lägg på kycklingen och skicka in i ugnen i ca 20 min.
 6. Ta ut kycklingen när den är klar och tillaga rotfrukterna ett tag till.
 7. Bland ihop ingredienserna till såsen och njut!
 
@@ -183,7 +216,7 @@ Rågbrödskrisp
 - 3 Skivor rågbröd
 - 1 msk olivolja
 - Flingsalt
-  
+
 ### Gör så här
 1. Koka potatisen i lättsaltat vatten.
 2. Koka äggen 7 minuter.
@@ -196,7 +229,7 @@ Rågbrödskrisp
 
 ## Köttgryta med grädde och timjan
 
-### Ingredienser 
+### Ingredienser
 
 
 - 300 g grytbitar av nöt
@@ -220,7 +253,7 @@ Rågbrödskrisp
 2. Låt grytan sjuda under lock tills köttet är mört, ca 30-60 minuter. Tiden kan variera beroende på storlek på grytbitarna samt vilken styckningsdetalj som använts.
 3. Häll på grädden, red av med mjöl utrört i lite vatten och sjud 3–5 minuter. Smaka av med salt och peppar.
 4. Koka potatisen i saltat vatten tills den är mjuk. Koka broccolin mjuk i saltat vatten.
-5. Krossa potatisen grovt och servera den och broccolin till grytan. Garnera gärna med färsk timjan. 
+5. Krossa potatisen grovt och servera den och broccolin till grytan. Garnera gärna med färsk timjan.
 
 
 [Länk till receptet online](https://recept.se/recept/kottgryta-med-gradde-och-timjan)
@@ -233,10 +266,10 @@ Rågbrödskrisp
 - Rostbiff
 - Lagrad cheddar
 - Smetana
-- Pickles 
+- Pickles
 - Honung
 - Dijon
-- Färskt surdegsbröd 
+- Färskt surdegsbröd
 - Smör
 
 1. Stek smöret på medelvärme i smör, pressa ner det för bättre yta.
@@ -276,14 +309,14 @@ Rågbrödskrisp
 - Ev. madeira 1 msk
 - Worcestershiresås 2 tsk
 - Salt och peppar
-	
-### Gör så här 
+
+### Gör så här
 
 1. Smält smör i en kastrull och fortsätt fräsa under ständig omrörning tills det är gyllenbrunt och doftar nötigt.
- 
+
 2. Vispa ner mjöl och lite av grädden till en tjock stuvning. Tillsätt resterande grädde, lite i taget, under vispning. Tillsätt örtkryddor (och ev steksky från köttbullarna).
- 
-3. Låt sjuda på låg värme minst 10 min men gärna längre. Rör då och då. Tillsätt smulad buljongtärning, soja, madeira och worcestersås. Låt koka ytterligare 5 min. Smaka av med salt och peppar. 
+
+3. Låt sjuda på låg värme minst 10 min men gärna längre. Rör då och då. Tillsätt smulad buljongtärning, soja, madeira och worcestersås. Låt koka ytterligare 5 min. Smaka av med salt och peppar.
 
 
 
@@ -424,14 +457,14 @@ Marmeladen klarar sig minst några månader om den står mörkt och svalt. I fry
 
 ### Gör så här
 
-1. Skölj bären i durkslag och ta bort dåliga bär och alla blad. Klasarna gör inget att de är kvar.  
+1. Skölj bären i durkslag och ta bort dåliga bär och alla blad. Klasarna gör inget att de är kvar.
 2. Väg de röda vinbären och häll de sedan i en saftmaja.
 3. Häll på socker enligt proportionerna ovan ovanpå bären. Rör eventuellt om så att sockret och de röda vinbären blandas något.
 4. Koka de röda vinbären i saftmajan tills de vattnats ur helt. Detta brukar ta upp till en timme beroende på hur mogna bären varit och mängden saft som kokas. Tappa gärna ur saften en gång och håll tillbaka den på bären för att blanda sockret och få en jämnare kvalitet mellan flaskorna.
 5. Under tiden röda vinbärssaften kokas så förbereds flaskorna som skall vara hela och rena. Ta av korkarna på flaskorna och koka dess i vattenbad. Flaskorna läggs i ugnen på 100 grader tills de är torra.
 6. När saften kokat färdigt så hälls den via pipen i saftmajan ner i de varma flaskorna. Använd gärna en sil mellan tratten och pipen från saftmajan för att samla upp eventuella kärnor som åkt med ner i saften. Detta påverkar inte smaken på saften, men då blir röda vinbärssaften snyggare i flaskorna. Häll saften ändå upp för att minska mängden luft i flaskorna vilket gör att saften håller sig längre.
 7. Förslut flaskorna på en gång och låt de sakta svalna i rumstemperatur.
-8. Förvara flaskorna svalt, gärna i en kallkällare eller kylskåp. 
+8. Förvara flaskorna svalt, gärna i en kallkällare eller kylskåp.
 
 [Länk till receptet online](https://www.letarecept.se/recept/rod-vinbarssaft-i-saftmaja--41.html)
 
@@ -444,16 +477,16 @@ Marmeladen klarar sig minst några månader om den står mörkt och svalt. I fry
 - Ca 400g Kassler.
 - Grönsaker (välj det du gillar).
 - 2 dl Gräddfil
-- 1 dl Crème Fraiche 
+- 1 dl Crème Fraiche
 - 1 påse Knorr Örtagård kryddmix
 
 ### Gör så här
 
-1. Skär kasslern i tärningar eller strimlor. 
-2. Hacka grönsakerna i lagom stora bitar. 
+1. Skär kasslern i tärningar eller strimlor.
+2. Hacka grönsakerna i lagom stora bitar.
 3. Blanda kasslern, grönsaker & pastan i en stor skål.
-4. Rör ihop gräddfil, crème fraiche och kryddmixen tills det blir en jämn röra. 
-5. Hälls såsen över pastasalladen och rör om ordentligt. 
+4. Rör ihop gräddfil, crème fraiche och kryddmixen tills det blir en jämn röra.
+5. Hälls såsen över pastasalladen och rör om ordentligt.
 
 Servera gärna med Eldorado Salladsost smulad över.
 
@@ -477,12 +510,12 @@ Dressing:
 - Ca 10 droppar Worcestershiresås.
 - 1 stor finriven vitlöksklyfta.
 - 2 krm Salladskrydda.
-- Salt & Peppar. 
+- Salt & Peppar.
 
-### Gör så här 
+### Gör så här
 
 1. Häll upp alla ingredienserna till dressingen i en flaska eller skål och skaka eller vispa ihop och smaka av med salt och peppar.
-2. Hacka upp övriga ingredienser i lämpliga bitar och blanda ihop och häll sedan på lagom mycket dressing. 
+2. Hacka upp övriga ingredienser i lämpliga bitar och blanda ihop och häll sedan på lagom mycket dressing.
 
 
 ## Focaccia med flingsalt
